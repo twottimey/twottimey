@@ -6,5 +6,5 @@
 ![untitled149-20260720174622.avif](https://user17194.na.imgto.link/public/20260720/untitled149-20260720174622.avif)
 ![untitled149-20260720174750.avif](https://user17194.na.imgto.link/public/20260720/untitled149-20260720174750.avif)
 ![untitled149-20260720172559.avif](https://user17194.na.imgto.link/public/20260720/untitled149-20260720172559.avif)
-official ponytown's two time
+official ponytown's two time, i am currently collecting that title, i would really appreciate it if you helped me with it by nominating me in githubs you know :)
 ![img-9658.avif](https://user17194.na.imgto.link/public/20260727/img-9658-1.avif)
