@@ -1,3 +1,6 @@
+[![Hits](https://hits.sh/github.com/twottimey.svg?label=%E2%80%8B%F0%93%86%A9%20%EA%A5%9F%20prayers&extraCount=2&color=315275&labelColor=3c617a)](https://hits.sh/github.com/twottimey/)
+
+
 ![untitled200-20260905142611.avif](https://user17194.na.imgto.link/public/20260905/untitled200-20260905142611.avif)
 
 $${\color{lightblue}Ponytown's  \space Two Time}$$
