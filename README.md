@@ -13,4 +13,4 @@ $${\color{lightblue}Azuretime's  \space N1 \space shipper}$$
 
   ![untitled201-20260905142658.avif](https://user17194.na.imgto.link/public/20260905/untitled201-20260905142658.avif)
 
-  $${\color{lightblue}not  \space a \space spawnist }$$
+$${\color{lightblue}not  \space a \space spawnist }$$
