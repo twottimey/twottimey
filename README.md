@@ -5,7 +5,7 @@
 
 $${\color{lightblue}Ponytown's  \space Two Time}$$
 
-[@title-town](https://github.com/title-town) [@pt-contribuiters](https://github.com/pt-contributers)  [@charactersofpt](https://github.com/charactersofpt)  [@charactertown](https://github.com/character-town) [@style-town](https://github.com/style-town) [pt-heavyfictkin](https://github.com/pt-heavyfictkin) [@mini-pt-walk-of-fame-made-for-friend](https://github.com/mini-pt-walk-of-fame-made-for-friend?tab=repositories) [Ponytowns-rewards](https://github.com/Ponytowns-rewards)
+[@title-town](https://github.com/title-town) [@pt-contribuiters](https://github.com/pt-contributers)  [@charactersofpt](https://github.com/charactersofpt)  [@charactertown](https://github.com/character-town) [@style-town](https://github.com/style-town) [pt-heavyfictkin](https://github.com/pt-heavyfictkin) [@mini-pt-walk-of-fame-made-for-friend](https://github.com/mini-pt-walk-of-fame-made-for-friend?tab=repositories) [@Ponytowns-rewards](https://github.com/Ponytowns-rewards)
 
 $${\color{lightblue}Azuretime's  \space N1 \space shipper}$$
 
