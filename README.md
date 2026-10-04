@@ -4,10 +4,6 @@ $${\color{lightblue}I  \space follow \space back \space most \space of \space th
 
 ![untitled200-20260905142611.avif](https://user17194.na.imgto.link/public/20260905/untitled200-20260905142611.avif)
 
-[guns.lol](https://guns.lol/faithfuldevotee)
-[atabook](https://twotimeyy.atabook.org/)
-[strawpage](https://faithfuldevotee.straw.page/)
-[prns.cc](https://pronouns.cc/@accidentalcannibal)
 
 
 $${\color{lightblue}Ponytown's  \space Two Time}$$
