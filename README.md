@@ -7,9 +7,8 @@
 
 <img width="1280" height="719" alt="_com apple Pasteboard Ee9c1b" src="https://github.com/user-attachments/assets/78b757c1-cc89-4651-a519-72cad7de8ae5" />
 
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Italianno&size=37&duration=4300&pause=40&color=441A2C&center=true&width=435&lines=This+place+of+worship+is+simply+wonderful.;Such+detail...+Surely+it+is+a+gift%2C;lent+to+us+by+the+Spawn...)](https://git.io/typing-svg)
-
+ㅤ
+ㅤ
 <p align="center"
 <a href="https://hits.sh/github.com/twottimey/"><img alt="Hits" src="https://hits.sh/github.com/twottimey.svg?label=%F0%9D%91%9D%F0%9D%91%9F%F0%9D%91%8E%F0%9D%91%A6%F0%9D%91%92%F0%9D%91%9F%F0%9D%91%A0%20%E2%84%8E%F0%9D%91%92%F0%9D%91%8E%F0%9D%91%9F%F0%9D%91%91&color=7D7F5B&labelColor=E3DA73&logo=slug"/></a>
 </p>
