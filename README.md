@@ -2,7 +2,7 @@
 ![untitled275-20261031132937.avif](https://user17194.na.imgto.link/public/20261031/a15eed8d71d0fce57ef069ae-untitled275-20261031132937.avif)
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Italianno&size=37&duration=4300&pause=40&color=441A2C&center=true&width=435&lines=Ah%2CHello!;Have+you+come+to+acknowledge+their+presence;as+much+as+I?)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Italianno&size=37&duration=4300&pause=32&color=441A2C&center=true&width=435&lines=Ah%2CHello!;Have+you+come+to+acknowledge+their+presence;as+much+as+I?)](https://git.io/typing-svg)
 
 
 <img width="1280" height="719" alt="_com apple Pasteboard Ee9c1b" src="https://github.com/user-attachments/assets/78b757c1-cc89-4651-a519-72cad7de8ae5" />
