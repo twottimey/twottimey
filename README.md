@@ -13,6 +13,8 @@
 <a href="https://hits.sh/github.com/twottimey/"><img alt="Hits" src="https://hits.sh/github.com/twottimey.svg?label=%F0%9D%91%9D%F0%9D%91%9F%F0%9D%91%8E%F0%9D%91%A6%F0%9D%91%92%F0%9D%91%9F%F0%9D%91%A0%20%E2%84%8E%F0%9D%91%92%F0%9D%91%8E%F0%9D%91%9F%F0%9D%91%91&color=7D7F5B&labelColor=E3DA73&logo=slug"/></a>
 </p>
 
+ㅤ
+ㅤ
 <img width="953" height="280" alt="_com apple Pasteboard 8e4XlF" src="https://github.com/user-attachments/assets/d6de7521-19fa-4efa-a0f6-8ba4904594af" />
 
 <details>
